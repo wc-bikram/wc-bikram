@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **bikramroy9991@gmail.com**
 
-- ⚡ Fun fact **I think i am Narcissistic**
+- ⚡ Fun fact **Nothing is fun, Life is Hard**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
